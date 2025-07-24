@@ -27,4 +27,6 @@ If you plan to explore everything this darknet marketplace provides, prioritize 
 
 
 
-Update:  21.07.2025 22:14
+
+
+Update: url is live
