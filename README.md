@@ -37,4 +37,6 @@ If you plan to explore everything this darknet marketplace provides, prioritize 
 
 
 
-Update:  23.08.2025 url is operational and accessible
+
+
+Update:  12 September 2025 Link is now accessible and operational
