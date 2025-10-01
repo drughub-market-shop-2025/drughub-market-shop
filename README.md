@@ -43,4 +43,6 @@ If you plan to explore everything this darknet marketplace provides, prioritize 
 
 
 
-Update:  18 September
+
+
+Update:  10/01/2025 Just wanted to share that the link is live again.
